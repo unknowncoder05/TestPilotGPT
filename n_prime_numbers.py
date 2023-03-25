@@ -1,0 +1,1 @@
+There is no content in the current file.
